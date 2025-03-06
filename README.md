@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  [_r3ntry ! ✧_](https://rentry.co/selfi1sh) on wip!
+  more info on my main! **@4methyst**
 </p>
 
 <div align="center">
