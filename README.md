@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  more info on my main! **@4methyst**
+  more info on my main! @4methyst
 </p>
 
 <div align="center">
